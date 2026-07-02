@@ -1,1 +1,4 @@
 https://www.canva.com/design/DAHGwLru1ng/RI1u9RbbomfHxjnn4HxM-Q/edit
+https://whimsical.com/dsa-patterns-47DQdVg8MiLZ1idPyveWFr?fbclid=PAT01DUASzee5leHRuA2FlbQIxMABzcnRjBmFwcF9pZA81NjcwNjczNDMzNTI0MjcAAaf4sNz3uyF06mwEiM4DJ3nHJQzU9tR6YTPZEyLziepcZWo8WQXh0IeEFa96kQ_aem_NuXaf76N2ja96QsFVHgegA
+https://youtube.com/@alextheanalyst
+https://github.com/topics/sql-project?o=desc&s=updated&utm_source=sp_auto_dm&utm_referrer=sp_auto_dm&fbclid=PAT01DUASzYnBleHRuA2FlbQIxMABzcnRjBmFwcF9pZA81NjcwNjczNDMzNTI0MjcAAaf5tdYjkT15iwhz0r-ucyEQMcb7F_VYHfTqZgJeitwWW_DT1QLyCW4i7XfAGg_aem_0BhfC-Ud21Bqe86h7ocSYQ
